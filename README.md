@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning web development.
 - 💞️ I’m looking to collaborate on start up companies and freelancing.
 - 📫 How to reach me sirigirinagalakshmi07@gmail.com
-- 😄 Pronouns: she
+- 😄 Pronouns: Naga Lakshmi
 - ⚡ Fun fact: computer science with MBA its a deadly combination.
 
 <!---
